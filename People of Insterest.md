@@ -1,1 +1,1 @@
-Tim Berners-Lee is the creator of the World Wide Web, he was a computer scientist and a engenieer. Hes teching currently as a proffesor
+Tim Berners-Lee is the creator of the World Wide Web, he was a computer scientist and a engenieer. Hes teching currently as a proffesor in Computer Science at The University of Oxford and also at Massachussets Instatute of Technology
